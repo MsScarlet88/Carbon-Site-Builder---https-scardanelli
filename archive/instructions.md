@@ -1,5 +1,5 @@
 
-# Welcome to Your First Carbon Neutral Site 🎉🌲
+Healthy lifestyle
 
 We're thrilled to have you on board at our carbon-neutral site! This quickstart guide will help you get started. We recommend giving it a quick read before you dive in.
 
