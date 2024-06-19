@@ -1,6 +1,6 @@
-# Scarlet Scardanelli
+# About
 
-Awareness is a state of mind
+Scarlet Scardanelli
 
 -----------
 
