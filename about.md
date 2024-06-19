@@ -8,4 +8,17 @@ take control of your own health.
 -----------
 
 
-I am an artist, enthusiastic film maker, conscientious and versatile Designer with a ‘hands on’ approach and a ‘can do’ attitude. I make and produce things physically and digitally. I have experience across many business sectors, and am always keen to embrace new ideas, technology and to gain new skills. I am confident in taking client briefs, creating and developing concepts, managing my time effectively and liaising with clients and suppliers to ensure quality work is delivered according to brief and schedule. I care about the environment and recycling, reducing waste in general and love to share my ideas and enthusiasm with other professionals, to create great work of which I can be proud. I also meditate regularly and swim.
+Lo-Lo cooking uses principles that are natural, environmentally respectful,
+and sustainable, in order to create wonderful meals. Expect simple, healthy
+vegetarian food, with the occasional guest cook for sh. We’ll also have
+some nice but naughty sweet treats, of course!
+I’m not here to prescribe what you should do, but just to share what
+helps me feel good, retain health, and live in tune with nature. I’ve
+collected and developed many favourite recipes over the years and
+also share heritage recipes, which deserve to be re-discovered.
+We’ll use simple and seasonal ingredients (I grow much of my own
+veg), using basic tools and techniques, whilst having fun and always
+keeping it interesting with herbs & spices. You know yourself better
+than anyone else. A little is more than nothing and if you would
+like to learn some vegetarian and shy recipes,
+I’ll show you the Lo-Lo way to go.....
