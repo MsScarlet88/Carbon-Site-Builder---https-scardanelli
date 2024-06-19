@@ -1,6 +1,9 @@
 # About 
 
-Awareness is a state of mind
+Lo-Lo is low salt and low sugar
+(and only a little fat!). Each week I share
+one of my favourite recipes, helping you
+take control of your own health.
 
 -----------
 
